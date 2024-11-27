@@ -1,4 +1,4 @@
-<header>
+my experiencs in the other worlds made me saw/seeing many things in the World when I came back. some activities made me making me sick at heart, and among the reasons why I became a beggar, "first class beggar"as Holy Angel who visited me called me. I pray Thee to LORD GOD ALMIGHTY, I pray Thee to all Humans, but I pray thee not to Lucifer Pride Satan whom I have fierce Spiritual war with for electing huge evil mountain against total Humanity. and I am prosecuting Lucifer Pride Satan seriously each time we appear before ALMIGHTY GOD, The Righteous Judge of all Nations, prosecuting him in the Spiritual Land of Sodom and Egypt for working, tasking his evil angels, Devils to collapse the world upon Humans. I'm begging Humans, Nations, Religios, Organizations, regardless of PUM perspective, Understanding and mindset, tribe, language, Worldview, position to power the world daily and hinder Lucifer Pride Satan, dismantle his huge evil mountain against Humanity and make the Ones who shall live in the mysterious generation in far future, hail this extraordinary generation.<header>
 
 <!--
   <<< Author notes: Course header >>>
